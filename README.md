@@ -1,0 +1,1 @@
+# Lenovo-K29-Catalina-Clover5145-EFI
